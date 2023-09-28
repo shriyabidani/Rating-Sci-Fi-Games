@@ -39,7 +39,7 @@ In *Event [0]*, our main character is an explorer selected by the International 
 ![midnight scenes](https://github.com/shriyabidani/rating-sci-fi-and-horror-games/assets/145644455/b32bd306-92e1-4763-a782-b1e95cdcc39e)
 
 ## About
-*Midnight Scenes: From the Woods* is the sequel to *Midnight Scenes: The Nanny*. It takes place in a mental health institution for young men, where mysterious and terrifying things begin happening following the arrival of a new boy, *Oliver*, who went missing with his sister 10 years ago. The story follows *Elijah*, another boy at the center, as he attempts to get close to Oliver and learn about his past, and the cause of the present killings. Although this is technically a horror game, it is very warm, wholesome, and cute (ignoring the fact that people lose eyes) and generally is a feel-good game. 
+*Midnight Scenes: From the Woods* is the sequel to *Midnight Scenes: The Nanny*. It takes place in a mental health institution for young men, where mysterious and terrifying things begin happening following the arrival of a new boy, *Oliver*, who went missing with his sister 10 years ago. The story follows *Elijah*, another boy at the center, as he attempts to get close to Oliver and learn about his past, and the cause of the present killings. Although this is technically a horror game, it is very warm, wholesome, and cute (ignoring the fact that people lose eyes and geese are killed) and generally is a feel-good game. 
 
 ### Rating
 🦢🦢🦢🦢🦢 (iykyk)
