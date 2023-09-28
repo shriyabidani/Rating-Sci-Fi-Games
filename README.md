@@ -11,6 +11,6 @@ Rating some of my favorite sci-fi and horror games!
 
 ### Unique Elements
 Besides the light scanning mechanic, the game also has an optional feature that requires you to hold your breath as the main character hides from the creatures of the void. Breathing too loudly will alert the creatures of your presence, allowing them to find and kill you.
-### Rating (out of 5):
+### Rating (/5):
 🛸🛸🛸🛸
     
