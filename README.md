@@ -14,8 +14,11 @@ Besides the light scanning mechanic, the game also has an optional feature that 
 ### Rating (/5):
 🛸🛸🛸🛸
 
-# Dead Space
+# Dead Space 1 Remake
 
+<img width="402" alt="dead space" src="https://github.com/shriyabidani/rating-sci-fi-and-horror-games/assets/145644455/8c0b57a2-8a4f-4b75-afc2-1f294b5636de">
+
+## Trailer: 
 https://youtu.be/cTDJNZ9cK1w
 
     
